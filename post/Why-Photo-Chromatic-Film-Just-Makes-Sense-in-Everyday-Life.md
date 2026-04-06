@@ -74,4 +74,3 @@ Sometimes, the best upgrades are the ones you don’t have to think about every 
 It quietly improves comfort, reduces harsh light, and helps create a space that feels just right—no constant adjustments needed.
 
 If you’ve been dealing with too much sunlight or just want a smarter way to manage it, Sumona Automation can help you explore whether photo chromatic film is the right fit for your space.
----
